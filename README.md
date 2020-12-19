@@ -23,12 +23,12 @@ Ketika seseorang dengan IQ 100 maka itu memperlihatkan bahwa tingkat kecerdasann
 
 Agar dapat mudah dipahami berikut ini skor Tes IQ yang berada pada kisaran angka 70 – 169 berdasarkan pengelompokan :
 
-IQ 140 – 169 : Very superior (sangat pandai)
-IQ 120 – 139 : Superior (cerdas)
-IQ 110 – 119 : High Average (rata-rata atas)
-IQ 90 – 109 : Average (rata-rata)
-IQ 80 – 89 : Low average (rata-rata bawah)
-IQ 70 – 79 : Borderline (keterlambatan belajar)
+- IQ 140 – 169 : Very superior (sangat pandai)
+- IQ 120 – 139 : Superior (cerdas)
+- IQ 110 – 119 : High Average (rata-rata atas)
+- IQ 90 – 109 : Average (rata-rata)
+- IQ 80 – 89 : Low average (rata-rata bawah)
+- IQ 70 – 79 : Borderline (keterlambatan belajar)
 
 ## Rekomendasi Tempat dan Biaya Tes IQ di Jogja Termurah
 Jika saat ini Anda membutuhkan bantuan dari ahli psikologis agar bisa mendapatkan hasil tes psikologi yang valid dengan layanan berkualitas maka Biro Psikologi Laksita Educare memberikan pelayanan dan biaya tes IQ di Jogja yang didampingi psikotester berpengalaman di Yogyakarta.
